@@ -1,8 +1,8 @@
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=heavenly-stars&color=red" />
 </p>
-⠀ ⠀⠀ ⠀ ⠀ 𓂃 . 𐑞 fandoms : jjk . kny . fnaf . unstable smp/universe . one piece . creepypasta . obey me .
-⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ haikyu . ddlc . twd . brba . better call saul . teotfw ︶  ⟢  ౨ৎ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
+⠀ ⠀⠀ ⠀ ⠀ 𓂃 . 𐑞 fandoms : jjk . kny . fnaf . unstable smp/universe . one piece . creepypasta . obey me .⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
+⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  haikyu . ddlc . twd . brba . better call saul . teotfw ︶  ⟢  ౨ৎ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
 ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ 
  
 ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀⠀ ⠀ ⠀^ this will most likely be getting updated quite a bit..
